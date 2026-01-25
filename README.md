@@ -19,9 +19,9 @@
 
 **name:** <span style="color:#F5F5F5">[cassy / turo]</span>  
 
-**pronouns:** <span style="color:#F5F5F5">he/him | she/her | etc.</span>  
+**pronouns:** <span style="color:#F5F5F5">he/him | she/her | depending on alter.</span>  
 
-**xtra:** <span style="color:#F5F5F5">im really cringey, annoying, and socially AWKWARD . I will struggle with keeping conversations and tend to overdo stuff... tell me to shut up if needed ! I get uncomfy easily and tend to zone out a HELL of a lot. I also dont really understand socal cues... im pretty dumb ? </span> 
+**xtra:** <span style="color:#F5F5F5">im really cringey, annoying, and socially AWKWARD . i will struggle with keeping conversations and tend to overdo stuff... tell me to shut up if needed ! i get uncomfy easily and tend to zone out a HELL of a lot. some of our alters play on pt so just ask who fronts sometimes . i also dont really understand socal cues... im pretty dumb ? </span> 
 
 **fandom(s):** <span style="color:#F5F5F5"> Metalocalypse , Heavy Trip (Hevi Reissu) , Lords of Chaos , Metal Lords , Sound of Metal , Moral Orel , Superjail , The Crow , The Outsiders , SLC Punk , Stranger Things , DOOM , ULTRAKILL , Hotline Miami , Postal , Devil May Cry , Silent Hill , Hellraiser , Resident Evil , Outlast , Transformers , Star Wars , MLP , Castle Crashers , Saw , Texas Chainsaw Massacre , American Psycho , Metalhead culture , The Beatles , Tally hall , Dandy's world + more
 
