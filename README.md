@@ -36,7 +36,7 @@
 <span style="color:#C0C0C0">
   
 **byi + info:** <span style="color:#F5F5F5">i yumeship... shocking is it not. i mainly have 3 main kins at all times (SHOCKER!) 
-which is : Turo Moilanen , Eddie Munson , and Hunter Sylvester ... 
+which is : Turo Moilanen , Steve Harrington , and Hunter Sylvester ... 
 and i tend to relate and adapt to the characters personality. im a fragsys , moodswings and attitude will differ. i do NOT like romantically flirting , friend request without talking to me , request fronter(s) , or ask questions about our private / offline life unless close friends , sexually joke around me if you are under 15 ,sexualize real actors , publicly darkship , just crude sexual talk , idk basic no no stuff ... i dont have anything special to add atm (1/25/25) , but there will be more stuff in the future.</span>
 
 ![ezgif-2cb0304449a472e2](https://github.com/user-attachments/assets/e27223c6-7472-4d24-86e6-93208e194536)
