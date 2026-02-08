@@ -1,6 +1,6 @@
 <div align="center">
 
-![ezgif-2dc131fc57e9d1da](https://github.com/user-attachments/assets/4d0d4602-535f-444a-b23e-2732d175ed0e)
+![ezgif-161b7efd6fcaa72d](https://github.com/user-attachments/assets/91a1013a-56b6-4ba7-93a1-94febf6554e4)
 
 
 <!-- Big centered ASCII / visual vibe (replace with your own art or image links) -->
@@ -17,7 +17,7 @@
 
 <div align="center">
 
-**name:** <span style="color:#F5F5F5">[cassy / turo]</span>  
+**name:** <span style="color:#F5F5F5">[cassy / turo (billy)]</span>  
 
 **pronouns:** <span style="color:#F5F5F5">he/him | she/her | depending on alter.</span>  
 
@@ -39,7 +39,8 @@
 which is : Turo Moilanen , Billy Hargrove , and Hunter Sylvester ... 
 and i tend to relate and adapt to the characters personality. im a fragsys , moodswings and attitude will differ. some alters tamper with proships so . . . heads up on that ! i do NOT like romantically flirting , friend request without talking to me , request fronter(s) , or ask questions about our private / offline life unless close friends , sexually joke around me if you are under 15 , sexualize real actors , publicly sh(ed)twt or darkship , just crude sexual talk , idk basic no no stuff ... i dont have anything special to add atm (1/25/25) , but there will be more stuff in the future.</span>
 
-![ezgif-2cb0304449a472e2](https://github.com/user-attachments/assets/e27223c6-7472-4d24-86e6-93208e194536)
+![tumblr_e9a015c194a9b4cbcef1f1fa6f780d30_9eb3c2c2_540](https://github.com/user-attachments/assets/32bf4694-6a8e-4111-b174-6ea52da6b731)
+
 
 
 </span>
@@ -51,6 +52,6 @@ and i tend to relate and adapt to the characters personality. im a fragsys , moo
 <span style="color:#C0C0C0">
  best viewed on laptop / desktop  
 
-  (hunter made this!.)
+  (me and steve homeboys, the best of mankind)
 </span>
 </div>
