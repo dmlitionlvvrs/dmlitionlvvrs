@@ -4,8 +4,11 @@
 
 
 ıllı quote ⁄ nickname
+
 pronouns ⁄ nationality ⁄ gender ․․
+
 ＞＜ socials ＠ ˸˸
+
 creds 2 mikkique ․
 
 <div align="center">
