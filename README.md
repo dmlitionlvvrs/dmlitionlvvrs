@@ -8,7 +8,7 @@ cassy }} plural ․․
 
 ＞＜ binkbonk + seth yume ! ˸˸
 
-mtl , blood meridian , heavy trip, stranger things, metal family, for you satan ․
+mtl , blood meridian , heavy trip, stranger things, metal family, for you satan, l.a. guns ․
 
 <div align="center">
 <span style="color:#C0C0C0">
