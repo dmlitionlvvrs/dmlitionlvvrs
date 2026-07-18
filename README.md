@@ -1,20 +1,19 @@
 <div align="center">
 
-![ezgif-161b7efd6fcaa72d](https://github.com/user-attachments/assets/91a1013a-56b6-4ba7-93a1-94febf6554e4)
+<img width="1180" height="663" alt="image__fliter--warm-sea__channel--red__mode--lighten (1)" src="https://github.com/user-attachments/assets/13012bf4-ace1-4a98-9210-452fde51836c" />
 
+ıllı i know it's mad but if the world were ending would you kiss me or just leave me
 
-ıllı quote ⁄ nickname
+cassy }} plural ․․
 
-pronouns ⁄ nationality ⁄ gender ․․
+＞＜ binkbonk + seth yume ! ˸˸
 
-＞＜ socials ＠ ˸˸
-
-creds 2 mikkique ․
+mtl , blood meridian , heavy trip, stranger things, metal family, for you satan ․
 
 <div align="center">
 <span style="color:#C0C0C0">
  best viewed on laptop / desktop  
 
-  (me and steve homeboys, the best of mankind)
+  (doubles thin ice)
 </span>
 </div>
