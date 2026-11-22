@@ -4,9 +4,9 @@
 
 ıllı i know it's mad but if the world were ending would you kiss me or just leave me
 
-cassy }} plural ․․
+cassy , plural ․․
 
-＞＜ binkbonk + seth yume ! ˸˸
+＞＜ im socially awkward ! ˸˸
 
 mtl , blood meridian , heavy trip, stranger things, metal family, ncfom, acwo ․
 
