@@ -14,6 +14,6 @@ mtl , blood meridian , heavy trip, stranger things, metal family, ncfom, acwo â€
 <span style="color:#C0C0C0">
  best viewed on laptop / desktop  
 
-  (doubles thin ice)
+  (w2i most of the time)
 </span>
 </div>
