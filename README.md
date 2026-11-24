@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="800" height="482" alt="ezgif-294b3d5aea91f5f9" src="https://github.com/user-attachments/assets/f8925ae1-73f0-4ad2-8673-8e6f0f1e3b02" />
+<img width="800" height="482" alt="frame_93_delay-0 1s" src="https://github.com/user-attachments/assets/b8b4929c-841a-48d0-b5c0-962e1a7f353d" />
 
 ıllı i know it's mad but if the world were ending would you kiss me or just leave me
 
