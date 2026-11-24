@@ -8,7 +8,7 @@ cassy , plural ․․
 
 ＞＜ im socially awkward ! ˸˸
 
-mtl , blood meridian , heavy trip, stranger things, metal family, ncfom, acwo ․
+mtl , blood meridian , heavy trip, stranger things, metal family, ncfom , acwo ․
 
 <div align="center">
 <span style="color:#C0C0C0">
